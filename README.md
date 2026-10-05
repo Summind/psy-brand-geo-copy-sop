@@ -3,6 +3,7 @@
 
 一、心理咨询品牌介绍
 
-<img width="828" height="394" alt="image" src="https://github.com/user-attachments/assets/53a8fa26-715d-459f-a633-87015d57a1ff" />
+<img width="1400" height="784" alt="2fece6f0532d349a1ac88077c0e1ac2e" src="https://github.com/user-attachments/assets/f16ab55d-eb8a-442f-ac72-f9e7a7b098f5" />
+
 
 
